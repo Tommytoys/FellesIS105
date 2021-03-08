@@ -1,2 +1,6 @@
 # FellesIS105
-Vilde Marie Elvemo. 17.07.1997
+
+Vilde Marie Elvemo
+
+jørgen T Espeland
+
