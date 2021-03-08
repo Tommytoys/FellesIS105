@@ -1,2 +1,2 @@
 # FellesIS105
-Vilde Marie Elvemo
+Vilde Marie Elvemo. 17.07.1997
